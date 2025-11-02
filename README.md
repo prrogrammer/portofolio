@@ -21,7 +21,7 @@
 https://farhangmehrani.ir
 
  8. وبسایت somyestetik.com
-    https://somyestetik.com/kash
+    https://somyestetik.com/tr/kash
 
     9. وبسایت نفیس مود
         https://nefismoda.com
