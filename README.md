@@ -16,6 +16,18 @@
 
 5. وبسایت روانشناسی سودا نصری : https://sevdanasri.com
 6. وبسایت فروش سر مانکن اورمکس بیوتی : https://overmaxbeauty.com/
+
+7. وبسایت فرهنگ مهرانی:
+https://farhangmehrani.ir
+
+ 8. وبسایت somyestetik.com
+    https://somyestetik.com
+
+    9. وبسایت نفیس مود
+        https://nefismoda.com
+
+    10. وبسایت میک اینوست
+    https://iran.makeinvest.com
 ---
 
 ## درباره این مخزن
